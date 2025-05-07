@@ -1,1 +1,1 @@
-print("fuckers")
+print("kill yoursrlf fucking bumass nigger")
